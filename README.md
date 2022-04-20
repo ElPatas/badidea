@@ -1,2 +1,2 @@
 # badidea
-Bad Idea Clothing
+Bad Idea
